@@ -11,4 +11,5 @@
 - [Tesla Phone Mount Placement: Keep the Touchscreen Fully Usable](cutimauto.com/tesla-phone-mount-placement-keep-the-touchscreen-fully-usable.md)
 - [Tesla Screen Protector: The Real Cost of Going Without One](cutimauto.com/tesla-screen-protector-the-real-cost-of-going-without-one.md)
 - [Tesla Spoiler Installation: Why Surface Prep Matters More Than the Tape](cutimauto.com/tesla-spoiler-installation-why-surface-prep-matters-more-than-the-tape.md)
+- [Tesla Ventilated Seats: Why Older Models Cannot Unlock Them](cutimauto.com/tesla-ventilated-seats-why-older-models-cannot-unlock-them.md)
 <!-- backlink-building:github-repository:end -->
