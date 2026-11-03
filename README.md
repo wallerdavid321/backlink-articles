@@ -4,6 +4,7 @@
 
 <!-- backlink-building:github-repository:start -->
 ### cutimauto.com
+- [How to Remove Salt Stains from Car Mats: The Dry-First Method](cutimauto.com/how-to-remove-salt-stains-from-car-mats-the-dry-first-method.md)
 - [Model 3 Floor Mats: Why Fitment Beats Material](cutimauto.com/model-3-floor-mats-why-fitment-beats-material.md)
 - [Safe PPF Removal: Assess the Risk Before You Peel](cutimauto.com/safe-ppf-removal-assess-the-risk-before-you-peel.md)
 - [Tesla Glass Roof Heat: Why Your Skin Feels Warm](cutimauto.com/tesla-glass-roof-heat-why-your-skin-feels-warm.md)
