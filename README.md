@@ -12,6 +12,7 @@
 - [Model Y Mattress Fit: Why Geometry Matters More Than Thickness](cutimauto.com/model-y-mattress-fit-why-geometry-matters-more-than-thickness.md)
 - [S3XY Dash Compatibility: The Commander Comes First](cutimauto.com/s3xy-dash-compatibility-the-commander-comes-first.md)
 - [Safe PPF Removal: Assess the Risk Before You Peel](cutimauto.com/safe-ppf-removal-assess-the-risk-before-you-peel.md)
+- [Tesla Car Wash Mode: Why Free Roll Matters in a Tunnel](cutimauto.com/tesla-car-wash-mode-why-free-roll-matters-in-a-tunnel.md)
 - [Tesla Decals Over PPF: The Layer Order That Protects Lease Returns](cutimauto.com/tesla-decals-over-ppf-the-layer-order-that-protects-lease-returns.md)
 - [Tesla Glass Roof Heat: Why Your Skin Feels Warm](cutimauto.com/tesla-glass-roof-heat-why-your-skin-feels-warm.md)
 - [Tesla Model 3 Cabin Filter Interval: Why Two Years Is Only a Baseline](cutimauto.com/tesla-model-3-cabin-filter-interval-why-two-years-is-only-a-baseline.md)
