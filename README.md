@@ -10,6 +10,7 @@
 - [How to Remove Salt Stains from Car Mats: The Dry-First Method](cutimauto.com/how-to-remove-salt-stains-from-car-mats-the-dry-first-method.md)
 - [Model 3 Floor Mats: Why Fitment Beats Material](cutimauto.com/model-3-floor-mats-why-fitment-beats-material.md)
 - [Model Y Mattress Fit: Why Geometry Matters More Than Thickness](cutimauto.com/model-y-mattress-fit-why-geometry-matters-more-than-thickness.md)
+- [Model Y Retractable Sunshade: Why Fitment Comes First](cutimauto.com/model-y-retractable-sunshade-why-fitment-comes-first.md)
 - [S3XY Dash Compatibility: The Commander Comes First](cutimauto.com/s3xy-dash-compatibility-the-commander-comes-first.md)
 - [Safe PPF Removal: Assess the Risk Before You Peel](cutimauto.com/safe-ppf-removal-assess-the-risk-before-you-peel.md)
 - [Tesla Car Wash Mode: Why Free Roll Matters in a Tunnel](cutimauto.com/tesla-car-wash-mode-why-free-roll-matters-in-a-tunnel.md)
